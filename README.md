@@ -18,3 +18,10 @@ Some questions
 2. Marine biologist
 3. No work (and no play)... 
 4. Time allocations in my head for what to do when.. Does not work yet.. 
+
+Sarah's answers:
+(to questions you haven't even written down?!)
+1. Sarah
+2. Marine biologist :)
+3. What is work
+4. I literally suck at it, my computer is a mess.
