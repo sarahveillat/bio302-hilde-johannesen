@@ -1,2 +1,6 @@
 # bio302-hilde-johannesen
-Intro class to Grid
+Intro class to Git 
+
+
+
+Some questions
